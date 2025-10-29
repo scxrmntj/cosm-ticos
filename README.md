@@ -1,2 +1,0 @@
-"# cosm-ticos"  
-"# cosm-ticos"  
